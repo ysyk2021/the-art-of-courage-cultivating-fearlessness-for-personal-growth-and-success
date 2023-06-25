@@ -1,5 +1,4 @@
-Chapter 2: Understanding Courage: Definition of Courage
-=======================================================
+# Definition of Courage
 
 Courage is a complex and multifaceted concept that can be difficult to define. At its core, courage involves the ability to face fear, take risks, and overcome obstacles with purpose and authenticity. In this chapter, we will explore the definition of courage in greater detail.
 

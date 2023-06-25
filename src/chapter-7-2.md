@@ -1,5 +1,4 @@
-Chapter 7: Courageous Leadership: Discussion of Strategies for Leading with Courage and Authenticity
-====================================================================================================
+# Discussion of Strategies for Leading with Courage and Authenticity
 
 Courageous leadership involves leading with authenticity, vulnerability, and a willingness to take risks. In this chapter, we will discuss strategies for leading with courage and authenticity.
 

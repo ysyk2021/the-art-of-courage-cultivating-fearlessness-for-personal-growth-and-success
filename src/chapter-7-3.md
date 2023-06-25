@@ -1,5 +1,4 @@
-Chapter 7: Courageous Leadership: Tips for Managing Risk and Making Tough Decisions
-===================================================================================
+# Tips for Managing Risk and Making Tough Decisions
 
 Leadership requires courage and resilience, especially when it comes to managing risk and making tough decisions. In this chapter, we will provide tips for courageous leadership.
 

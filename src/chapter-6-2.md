@@ -1,5 +1,4 @@
-Chapter 6: Courage and Resilience: Discussion of Strategies for Building Resilience through Courageous Action
-=============================================================================================================
+# Discussion of Strategies for Building Resilience through Courageous Action
 
 Building resilience is an important aspect of cultivating fearlessness for personal growth and success. In this chapter, we will discuss strategies for building resilience through courageous action.
 

@@ -1,5 +1,4 @@
-Chapter 10: Conclusion: Resources for Further Exploration
-=========================================================
+# Resources for Further Exploration
 
 For those interested in further exploring the art of courage and personal growth, there are many resources available. Here are some recommended books, articles, and resources for further exploration:
 

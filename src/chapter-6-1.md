@@ -1,5 +1,4 @@
-Chapter 6: Courage and Resilience: Explanation of the Relationship between Courage and Resilience
-=================================================================================================
+# Explanation of the Relationship between Courage and Resilience
 
 Courage and resilience are closely related concepts that play an important role in personal growth and success. In this chapter, we will explain the relationship between courage and resilience.
 
