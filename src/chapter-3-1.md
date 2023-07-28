@@ -48,4 +48,4 @@ Developing a Resilient Mindset
 
 Resilience and courage go hand in hand. We explore strategies for developing a resilient mindset, such as reframing setbacks as opportunities, focusing on strengths, seeking growth from challenges, and cultivating gratitude. A resilient mindset supports our ability to bounce back from failures, setbacks, and obstacles, empowering us to persevere on our path to personal growth and success.
 
-By understanding the profound influence of mindset on courage and practicing the techniques discussed in this chapter, you can cultivate a courageous mindset that empowers you to face fears, embrace challenges, and unlock your true potential for personal growth and success. In the following chapters, we will delve into specific areas of life where courage can be applied and provide practical guidance to cultivate courage in those contexts.
+By understanding the profound influence of mindset on courage and practicing the techniques discussed in this chapter, you can cultivate a courageous mindset that empowers you to face fears, embrace challenges, and unlock your true potential for personal growth and success.
