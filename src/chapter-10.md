@@ -1,5 +1,3 @@
-Chapter 10: Conclusion
-======================
 
 In this book, we have explored the art of courage and how it can be cultivated for personal growth and success. We have discussed the importance of understanding fear, strategies for overcoming it, and the role of courage in bouncing back from challenges and setbacks. We have also explored how courage is essential for leadership, personal growth, creativity, and innovation.
 

@@ -1,5 +1,3 @@
-Definition of Courage
-================================
 
 In this chapter, we explore the essence and meaning of courage in the context of personal growth and success. By understanding what courage truly entails, individuals can cultivate fearlessness and unlock their potential for transformative change.
 

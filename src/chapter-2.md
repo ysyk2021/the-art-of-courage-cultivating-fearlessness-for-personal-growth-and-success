@@ -1,5 +1,3 @@
-Chapter 2: Understanding Courage
-================================
 
 Definition of Courage
 ---------------------

@@ -1,5 +1,3 @@
-Chapter 5: Courageous Communication
-===================================
 
 Explanation of the Importance of Courageous Communication in Personal and Professional Relationships
 ----------------------------------------------------------------------------------------------------

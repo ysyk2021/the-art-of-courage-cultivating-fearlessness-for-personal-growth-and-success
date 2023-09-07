@@ -1,5 +1,3 @@
-Shifting from a Fear-Based to a Courageous Mindset
-=============================================================
 
 In our journey towards personal growth and success, it is crucial to shift from a fear-based mindset to a courageous mindset. This chapter explores the importance of making this shift and the transformative impact it can have on our lives.
 

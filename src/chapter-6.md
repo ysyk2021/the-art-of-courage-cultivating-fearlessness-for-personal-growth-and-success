@@ -1,5 +1,3 @@
-Chapter 6: Courage and Resilience
-=================================
 
 In this chapter, we will explore the relationship between courage and resilience and provide strategies for building resilience through courageous action. We will also discuss the role of courage in bouncing back from challenges and setbacks.
 

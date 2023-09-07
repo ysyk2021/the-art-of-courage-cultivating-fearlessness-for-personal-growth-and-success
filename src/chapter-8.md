@@ -1,5 +1,3 @@
-Chapter 8: Courage and Creativity
-=================================
 
 In this chapter, we will explore the relationship between courage and creativity and discuss strategies for fostering creative thinking and innovation through courage. We will also explore the role of courage in pursuing unconventional ideas and approaches.
 

@@ -1,5 +1,3 @@
-Chapter 3: Developing a Mindset of Courage
-==========================================
 
 In this chapter, we will explore how developing a mindset of courage can enhance personal growth and success. We will discuss the importance of shifting from a fear-based to a courageous mindset and provide strategies for developing a courageous mindset.
 

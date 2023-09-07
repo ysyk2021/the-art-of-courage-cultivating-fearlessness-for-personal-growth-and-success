@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Explanation of the Purpose and Scope of the Book
 ------------------------------------------------

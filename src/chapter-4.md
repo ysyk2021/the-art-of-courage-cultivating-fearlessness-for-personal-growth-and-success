@@ -1,5 +1,3 @@
-Chapter 4: Overcoming Fear
-==========================
 
 In this chapter, we will explore the role of fear in limiting personal growth and success and provide strategies for addressing fear and taking action despite it. We will also offer tips for embracing discomfort and uncertainty.
 

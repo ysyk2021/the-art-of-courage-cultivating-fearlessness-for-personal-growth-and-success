@@ -1,5 +1,3 @@
-Chapter 7: Courageous Leadership
-================================
 
 In this chapter, we will explore the importance of courageous leadership in professional settings and provide strategies for leading with courage and authenticity. We will also offer tips for managing risk and making tough decisions.
 

@@ -1,5 +1,3 @@
-Chapter 9: Courage and Personal Growth
-======================================
 
 In this chapter, we will explore how cultivating courage can support personal growth and discuss how courage can lead to greater self-awareness, confidence, and fulfillment. We will also offer strategies for setting intentions and goals for personal growth through courage.
 
