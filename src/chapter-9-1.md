@@ -1,5 +1,4 @@
-Chapter: Explanation of How Cultivating Courage Can Support Personal Growth
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the profound impact that cultivating courage can have on personal growth. We delve into how embracing fear, taking risks, and developing resilience can empower individuals to navigate challenges, expand their comfort zones, and experience transformative personal growth.
 

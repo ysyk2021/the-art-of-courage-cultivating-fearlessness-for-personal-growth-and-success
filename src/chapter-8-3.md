@@ -1,5 +1,4 @@
-Chapter: Exploration of the Role of Courage in Pursuing Unconventional Ideas and Approaches
-===========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the significant role that courage plays in pursuing unconventional ideas and approaches. We delve into how cultivating fearlessness empowers individuals to challenge the status quo, think outside the box, and embrace innovation for personal growth and success.
 
